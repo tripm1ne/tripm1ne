@@ -11,9 +11,13 @@
      
 ---
 
-<p align="center"> <sup>" i want things to be beautiful . "</sup>
+<p align="center"> <sup>" not a lot, "</sup>
 .
+  .
 <p align="left"> macaque <sup>or</sup></sup> subspace .
-<p align="right"> <ins>he , they prns</ins>
-<p align="left"> <samp>c+h freely</samp>
-<p align="center"><code>iwec .</code>
+<p align="center"> <ins>he , they prns</ins>
+<p align="right"> <samp>c+h freely</samp>
+<p align="left"><code>iwec .</code>
+
+  
+<p align="center"> <sup>" just forever . "</sup>

@@ -12,12 +12,10 @@
 ---
 
 <p align="center"> <sup>" not a lot, "</sup>
-.
-  .
+     <br/>
 <p align="left"> macaque <sup>or</sup></sup> subspace .
 <p align="center"> <ins>he , they prns</ins>
 <p align="right"> <samp>c+h freely</samp>
-<p align="left"><code>iwec .</code>
-
-  
+<p align="left"><table><tr><td>intwec</td></tr></table>
+     <br/>
 <p align="center"> <sup>" just forever . "</sup>

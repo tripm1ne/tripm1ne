@@ -1,4 +1,3 @@
----
 
 <!--
 **sn4kewrath/sn4kewrath** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -13,8 +12,10 @@
 
 <p align="center"> <sup>" not a lot, "</sup>
      <br/>
-<p align="left"> macaque <sup>or</sup></sup> subspace .
-<p align="right"> <ins>he , they prns</ins>
-<p align="center"> <samp>c+h freely</samp>
+<p align="center"> macaque <sup>or</sup></sup> subspace .
+<p align="left"> <ins>he , they prns</ins>
+<p align="right"> <samp>c+h freely</samp>
      <br/><br/><br/>
 <p align="center"> <sup>" just forever . "</sup>
+
+---

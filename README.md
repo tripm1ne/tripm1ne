@@ -14,8 +14,7 @@
 <p align="center"> <sup>" not a lot, "</sup>
      <br/>
 <p align="left"> macaque <sup>or</sup></sup> subspace .
-<p align="center"> <ins>he , they prns</ins>
-<p align="right"> <samp>c+h freely</samp>
-<p align="left"><table><tr><td>intwec</td></tr></table>
-     <br/>
+<p align="right"> <ins>he , they prns</ins>
+<p align="center"> <samp>c+h freely</samp>
+     <br/><br/><br/>
 <p align="center"> <sup>" just forever . "</sup>

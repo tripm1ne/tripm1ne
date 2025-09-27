@@ -12,9 +12,9 @@
 
 <p align="center"> <sup>" do it again ? "</sup>
      <br/>
-<p align="center"> macaque <sup>or</sup></sup> subspace .
-<p align="left"> <ins>he , they prns</ins>
-<p align="right"> <samp>c+h freely</samp>
+<p align="left"> macaque <sup>or</sup></sup> subspace .
+<p align="right"> <ins>he , they prns</ins>
+<p align="left"> <samp>c+h freely</samp>
      <br/><br/><br/>
 <p align="center"> <sup>" do it again . "</sup>
 

@@ -5,7 +5,7 @@
 
 <img align="left" width="350" height="476" alt="image" src="https://github.com/user-attachments/assets/c66cf564-386c-4da3-af02-46f2a9cceb82" />
 
-[strawpage .](https://1nf3ctedd.straw.page/)       /       [ata.book](https://snakewrath.atabook.org)
+[strawpage .](https://trpmine.straw.page)       /       [ata.book](https://snakewrath.atabook.org)
 
      
 ---

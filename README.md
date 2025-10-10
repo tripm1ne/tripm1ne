@@ -12,9 +12,9 @@
 
 <p align="center"> <sup>" do it again ? "</sup>
      <br/>
-<p align="left"> macaque <sup>or</sup></sup> astro .
-<p align="center"> <ins>he , they prns</ins>
-<p align="right"> <samp>c+h freely</samp>
+<p align="left"> $\color{#B36F69}{macaque}$ <sup>or</sup></sup> astro .
+<p align="center"> <ins>he</ins> , $\color{#C98869}{they}$ <samp>prns<samp>
+<p align="right"> <samp>c+h<samp> freely ^_^
      <br/><br/><br/>
 <p align="center"> <sup>" do it again . "</sup>
 

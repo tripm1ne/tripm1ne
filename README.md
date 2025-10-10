@@ -3,7 +3,7 @@
 **sn4kewrath/sn4kewrath** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 -->
 
-<img align="left" width="350" height="476" alt="image" src="https://github.com/user-attachments/assets/25423718-a37e-48a1-81e6-d2a37acf980c" />
+<img align="left" width="350" height="476" alt="image" src="https://github.com/user-attachments/assets/f6c7a5e5-4d78-4719-b932-556b6a6dae58" />
 
 [strawpage .](https://trpmine.straw.page)       /       [ata.book](https://sublaser.atabook.org)
 
@@ -12,7 +12,7 @@
 
 <p align="center"> <sup>" do it again ? "</sup>
      <br/>
-<p align="left"> macaque <sup>or</sup></sup> subspace .
+<p align="left"> macaque <sup>or</sup></sup> astro .
 <p align="center"> <ins>he , they prns</ins>
 <p align="right"> <samp>c+h freely</samp>
      <br/><br/><br/>

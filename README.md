@@ -5,7 +5,7 @@
 
 <img align="left" width="350" height="476" alt="image" src="https://github.com/user-attachments/assets/32739c64-9004-40b8-b6d5-f3b5644cc41b" />
 
-[strawpage .](https://sleeping2nite.straw.page)       /       [ata.book](https://sublaser.atabook.org)
+[strawpage .](https://6eared.straw.page)       /       [ata.book](https://sublaser.atabook.org)
 
      
 ---

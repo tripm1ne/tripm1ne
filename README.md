@@ -3,7 +3,7 @@
 **sn4kewrath/sn4kewrath** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 -->
 
-<img align="left" width="350" height="476" alt="image" src="https://github.com/user-attachments/assets/2d5ab575-5a99-48f3-abb6-bae0b6ff5c9b" />
+<img align="left" width="280" height="476" alt="image" src="https://github.com/user-attachments/assets/05a17a0b-c0a6-47f8-8ca5-054e4f872c6c" />
 
 [strawpage .](https://noval1t3.straw.page)       /       [ata.book](https://sublaser.atabook.org)
 
@@ -12,12 +12,12 @@
 
 <p align="center"> <sup>" do it again ? "</sup>
      <br/>
-<p align="left"> $\color{#8BBC9E}{macaque}$ <sup>or</sup></sup> astro .
+<p align="left"> $\color{#A57357}{macaque}$ <sup>or</sup></sup> karl .
 <p align="center"> <ins>he</ins> , they <samp>prns<samp>
-<p align="right"> <samp>c+h<samp> $\color{#5B787A}{freely}$ ^_^
+<p align="right"> <samp>c+h<samp> $\color{#8D5647}{freely}$ ^_^
      <br/><br/><br/>
 <p align="center"> <sup>" do it again . "</sup>
 
 ---
-<img align="center" width="120" height="90" alt="image" src="https://github.com/user-attachments/assets/11585e62-413c-4a26-99b6-a1fd007966b0" /> <img align="right" width="120" height="90" alt="image" src="https://github.com/user-attachments/assets/72b8e12e-6145-4ae2-8640-cf5742281e7c" />
+<img align="center" width="160" height="100" alt="image" src="https://github.com/user-attachments/assets/b46b1754-8f0c-4692-a8ce-d760fa7147e3" /> <img align="right" width="160" height="100" alt="image" src="https://github.com/user-attachments/assets/b959ea5c-9cab-4e24-9830-6c955fce3dbf" />
 

@@ -3,7 +3,7 @@
 **sn4kewrath/sn4kewrath** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 -->
 
-<img align="left" width="260" height="476" alt="image" src="https://github.com/user-attachments/assets/05a17a0b-c0a6-47f8-8ca5-054e4f872c6c" />
+<img align="left" width="300" height="476" alt="image" src="https://github.com/user-attachments/assets/1de4fb18-266b-49e6-9db2-fcf884730370" />
 
 [strawpage .](https://noval1t3.straw.page)       /       [ata.book](https://sublaser.atabook.org)    / [colormytree!](https://colormytree.me/2025/01KBHAJNKPJGJY7TNYFX0B544G)
 

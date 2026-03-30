@@ -12,7 +12,7 @@
 
 <p align="center"> <sup>" won't you die tonight for love? "</sup>
      <br/>
-<p align="left"> $\color{#A57357}{name}$ <sup>or</sup></sup> name .
+<p align="left"> $\color{#D19570}{𝖭𝗈𝗅𝖺𝗇}$⠀⠀<sup>or</sup></sup>⠀⠀climber .
 <p align="center"> <ins>prns</ins> , prns <samp>sup<samp>
 <p align="right"> <samp>bruh<samp> remaking atm
      <br/><br/><br/>

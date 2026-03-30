@@ -5,7 +5,7 @@
 
 <img align="left" width="300" height="476" alt="image" src="https://github.com/user-attachments/assets/1de4fb18-266b-49e6-9db2-fcf884730370" />
 
-⠀[straw , read b4 int](https://noval1t3.straw.page)       |       [leave a mark!](https://sublaser.atabook.org)    |    [my tree ? ](https://colormytree.me/2025/01KBHAJNKPJGJY7TNYFX0B544G)
+⠀[straw , read b4 int .](https://noval1t3.straw.page)       |       [leave a mark !](https://sublaser.atabook.org)    |    [my tree ? ](https://colormytree.me/2025/01KBHAJNKPJGJY7TNYFX0B544G)
 
      
 ---

@@ -16,7 +16,7 @@
 <p align="right"> <ins>he</ins> , they <samp> | prns | </samp><samp>
 <p align="center"> <samp>I love my partner! <samp> $\color{#D19570}{+}$
      <br/><br/><br/>
-<p align="center"> <sup>" Im not sure, but I will stick with yooouuu ! "</sup>
+<p align="center"> <sup>" Im not sure, but I will stand with yooouuu ! "</sup>
 
 ---
 <img align="center" width="150" height="120" alt="image" src="https://github.com/user-attachments/assets/b917d6d8-053f-4fb2-9a83-5b0b68c4dedd" /> <img align="right" width="150" height="120" alt="image" src="https://github.com/user-attachments/assets/014fe0f6-ec20-41e4-aff3-4ca22d445a2f" />

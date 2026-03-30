@@ -5,7 +5,7 @@
 
 <img align="left" width="300" height="476" alt="image" src="https://github.com/user-attachments/assets/1de4fb18-266b-49e6-9db2-fcf884730370" />
 
-⠀⠀[straw , read b4 int](https://noval1t3.straw.page)       |       [leave a mark!](https://sublaser.atabook.org)    |    [my tree ? ](https://colormytree.me/2025/01KBHAJNKPJGJY7TNYFX0B544G)
+⠀[straw , read b4 int](https://noval1t3.straw.page)       |       [leave a mark!](https://sublaser.atabook.org)    |    [my tree ? ](https://colormytree.me/2025/01KBHAJNKPJGJY7TNYFX0B544G)
 
      
 ---
@@ -13,8 +13,8 @@
 <p align="center"> <sup>" won't you die tonight for love? "</sup>
      <br/>
 <p align="left"> $\color{#D19570}{N𝗈𝗅𝖺𝗇}$⠀⠀<sup>or</sup></sup>⠀⠀climber .
-<p align="center"> <ins>prns</ins> , prns <samp>sup<samp>
-<p align="right"> <samp>bruh<samp> remaking atm
+<p align="right"> <ins>he</ins> , they <samp> | ftm | </samp><samp>
+<p align="center"> <samp>bruh<samp> remaking atm
      <br/><br/><br/>
 <p align="center"> <sup>" baby, join me in death! . "</sup>
 

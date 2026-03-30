@@ -5,16 +5,16 @@
 
 <img align="left" width="300" height="476" alt="image" src="https://github.com/user-attachments/assets/1de4fb18-266b-49e6-9db2-fcf884730370" />
 
-[strawpage .](https://noval1t3.straw.page)       /       [ata.book](https://sublaser.atabook.org)    / [colormytree!](https://colormytree.me/2025/01KBHAJNKPJGJY7TNYFX0B544G)
+⠀⠀⠀⠀[straw , read b4 int](https://noval1t3.straw.page)       |       [leave a mark!](https://sublaser.atabook.org)    |    [my tree ? ](https://colormytree.me/2025/01KBHAJNKPJGJY7TNYFX0B544G)
 
      
 ---
 
 <p align="center"> <sup>" won't you die tonight for love? "</sup>
      <br/>
-<p align="left"> $\color{#A57357}{macaque}$ <sup>or</sup></sup> karl .
-<p align="center"> <ins>he</ins> , they <samp>prns<samp>
-<p align="right"> <samp>c+h<samp> $\color{#8D5647}{freely}$ ^_^
+<p align="left"> $\color{#A57357}{name}$ <sup>or</sup></sup> name .
+<p align="center"> <ins>prns</ins> , prns <samp>sup<samp>
+<p align="right"> <samp>bruh<samp> remaking atm
      <br/><br/><br/>
 <p align="center"> <sup>" baby, join me in death! . "</sup>
 

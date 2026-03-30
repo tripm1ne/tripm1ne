@@ -14,7 +14,7 @@
      <br/>
 <p align="left"> $\color{#D19570}{N𝗈𝗅𝖺𝗇}$⠀⠀<sup>or</sup></sup>⠀⠀climber .
 <p align="right"> <ins>he</ins> , they <samp> | ftm | </samp><samp>
-<p align="center"> <samp>I love my partner! <samp> $\color{#D19570}{E♡.}$
+<p align="center"> <samp>I love my partner! <samp> $\color{#D19570}{wassup bruh!!}$
      <br/><br/><br/>
 <p align="center"> <sup>" Im not sure, but I will stick with yooouuu ! "</sup>
 

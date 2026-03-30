@@ -19,5 +19,5 @@
 <p align="center"> <sup>" baby, join me in death! . "</sup>
 
 ---
-<img align="center" width="165" height="120" alt="image" src="https://github.com/user-attachments/assets/b917d6d8-053f-4fb2-9a83-5b0b68c4dedd" /> <img align="right" width="165" height="120" alt="image" src="https://github.com/user-attachments/assets/014fe0f6-ec20-41e4-aff3-4ca22d445a2f" />
+<img align="center" width="160" height="120" alt="image" src="https://github.com/user-attachments/assets/b917d6d8-053f-4fb2-9a83-5b0b68c4dedd" /> <img align="right" width="160" height="120" alt="image" src="https://github.com/user-attachments/assets/014fe0f6-ec20-41e4-aff3-4ca22d445a2f" />
 

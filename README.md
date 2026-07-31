@@ -12,9 +12,9 @@
 
 <p align="center"> <sup>" quo quo quo "</sup>
      <br/>
-<p align="left"> $\color{#D19570}{name}$⠀⠀<sup>or</sup></sup>⠀⠀name .
-<p align="right"> <ins>he</ins> , they <samp> | prns | </samp><samp>
-<p align="center"> <samp>txtxtxtxt<samp> $\color{#D19570}{+}$
+<p align="left"> $\color{#959096}{ron}$⠀⠀<sup>or</sup></sup>⠀⠀walten .
+<p align="right"> <ins>he</ins> /  they <samp> prns </samp><samp>
+<p align="center"> <samp>txtxtxtxt<samp> $\color{#959096}{+}$
      <br/><br/><br/>
 <p align="center"> <sup>" quo quo quo "</sup>
 

@@ -16,7 +16,7 @@
 <p align="right"> <ins>he</ins> /  they <samp> prns </samp><samp>
 <p align="center"> <samp>bibbaly cheese.<samp> $\color{#959096}{+}$
      <br/><br/><br/>
-<p align="center"> <sup>" for you I’ll pull the trigger. "</sup>
+<p align="center"> <sup>" tell me our hearts will be sewn together "</sup>
 
 ---
 <img align="center" width="125" height="80" alt="image" src="https://github.com/user-attachments/assets/e61f288c-341d-4aa1-9652-6f1fc478fd95" /> <img align="right" width="125" height="80" alt="image" src="https://github.com/user-attachments/assets/02baa0cc-7dd1-42a5-b1d5-beeea3ef74a1" />

@@ -19,5 +19,5 @@
 <p align="center"> <sup>" quo quo quo "</sup>
 
 ---
-<img align="center" width="110" height="75" alt="image" src="https://github.com/user-attachments/assets/e61f288c-341d-4aa1-9652-6f1fc478fd95" /> <img align="right" width="110" height="75" alt="image" src="https://github.com/user-attachments/assets/02baa0cc-7dd1-42a5-b1d5-beeea3ef74a1" />
+<img align="center" width="125" height="80" alt="image" src="https://github.com/user-attachments/assets/e61f288c-341d-4aa1-9652-6f1fc478fd95" /> <img align="right" width="125" height="80" alt="image" src="https://github.com/user-attachments/assets/02baa0cc-7dd1-42a5-b1d5-beeea3ef74a1" />
 
